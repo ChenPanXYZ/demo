@@ -1,1 +1,1 @@
-hello world!
+I still want to say hello even if this is 8PM. But good bye and good luck on your lab this Thursday.
